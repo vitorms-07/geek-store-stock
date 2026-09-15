@@ -1,0 +1,1 @@
+este é o repositório do junior que está buscando um sitema queimpulsone o projeto dele det ganhar dinheiro
